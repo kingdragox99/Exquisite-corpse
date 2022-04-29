@@ -27,3 +27,5 @@ Se fisseler une branche à son aile cassée,
 Pensant pouvoir s'en servir comme arme,
 
 Pour démonter ce qui restait de poules ennemies.
+
+"VOUS VOULEZ ME FAIRE LA GUERRE ?" Asked Billy Calmly.
