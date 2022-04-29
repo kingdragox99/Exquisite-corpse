@@ -23,3 +23,19 @@ Billy la poule a déplumer deux des poules ,
 Mais elle finit avec une aile casser , 
 
 Elle vas donc esseyez de...
+
+Se fisseler une branche à son aile cassée,
+
+Pensant pouvoir s'en servir comme arme,
+
+Pour démonter ce qui restait de poules ennemies.
+
+"VOUS VOULEZ ME FAIRE LA GUERRE ?" Asked Billy Calmly.
+
+Enragée et forte de ses réserves,
+
+Dans l'innatendu, érigea la tourterie,
+
+"Ennemis vous êtes, tourtes à la viande vous serez !" tonna Billy.
+
+Oups : aux poulet
