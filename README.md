@@ -38,10 +38,6 @@ Dans l'innatendu, érigea la tourterie,
 
 "Ennemis vous êtes, tourtes à la viande vous serez !" tonna Billy.
 
-<<<<<<< HEAD
 Oups : aux poulet
 
-TESTE
-=======
-Oups : au poulet !!!
->>>>>>> a01fecb99400f3ae6dc4a2689b1b64cc063875c8
+TESTE teste
