@@ -17,3 +17,9 @@ Quelle comptait précieusement garder pour elle
 D'autres poules approchèrent ,
 
 Et une bagarre éclatat . 
+
+Billy la poule a déplumer deux des poules ,
+
+Mais elle finit avec une aile casser , 
+
+Elle vas donc esseyez de...
