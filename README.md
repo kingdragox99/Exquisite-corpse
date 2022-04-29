@@ -8,4 +8,10 @@ Qui dans le dos de tous c'est amis poule ...
 
 Voyant l'hiver approcher...
 
-Se faisait une petite réserve de graines !
+Se faisait une petite réserve de graines ,
+
+Quelle comptait précieusement garder pour elle 
+
+D'autres poules approchèrent ,
+
+Et une bagarre éclatat . 
